@@ -12,7 +12,7 @@ Throughout the book, we'll also address some of the common challenges and obstac
 
 Whether you're a CEO, a middle manager, or an emerging leader, this book has something for you. By embracing the power of empowerment, you can create a more engaged, productive, and innovative team that can drive success and growth for your organization. So let's get started on the journey to empowering your team for greater success at work.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
