@@ -1,5 +1,3 @@
-Addressing systemic barriers to diversity and inclusion
-====================================================================================================
 
 Empowerment is a powerful tool that can lead to greater success and satisfaction in the workplace. However, systemic barriers to diversity and inclusion can prevent individuals from accessing the benefits of empowerment. In this chapter, we will explore strategies for removing these barriers and promoting diversity and inclusion.
 

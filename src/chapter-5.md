@@ -1,5 +1,3 @@
-Chapter 5: Encouraging Innovation and Creativity
-================================================
 
 Encouraging innovation and creativity is essential for achieving greater success in the workplace. In this chapter, we will explore strategies for developing a culture of innovation and creativity, promoting experimentation and risk-taking, and supporting idea generation and implementation.
 

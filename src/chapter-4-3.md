@@ -1,5 +1,3 @@
-Encouraging continuous learning and growth
-=========================================================================================================
 
 Empowerment requires individuals to have the skills and competencies necessary to make decisions and take action in their work. In this chapter, we will explore the importance of encouraging continuous learning and growth to develop these skills and competencies.
 

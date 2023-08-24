@@ -1,5 +1,3 @@
-Developing strategies for encouraging innovation and creativity
-=================================================================================================================
 
 Innovation and creativity are essential for success in today's rapidly changing workplace. Empowered individuals and teams are more likely to engage in creative problem-solving and generate innovative ideas. In this chapter, we will explore strategies for encouraging innovation and creativity.
 

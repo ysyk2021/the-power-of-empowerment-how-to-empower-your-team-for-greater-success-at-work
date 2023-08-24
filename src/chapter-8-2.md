@@ -1,5 +1,3 @@
-Providing support and recognition to employees
-==============================================================================================================
 
 Empowerment is a powerful tool that can lead to greater success and satisfaction in the workplace. As a leader, incorporating empowerment into your leadership practices is essential for creating a culture of empowerment within your organization. In this chapter, we will explore strategies for providing support and recognition to employees as a way to incorporate empowerment into your leadership practices.
 
@@ -33,5 +31,4 @@ Conclusion
 ----------
 
 Incorporating empowerment into leadership practices is essential for creating a culture of empowerment within your organization. Providing support and recognition to employees can foster engagement, motivation, and productivity, leading to higher levels of success and satisfaction in the workplace. With intentional effort and support, leaders can empower employees to make decisions and take action in their work, creating a more positive and productive work environment.
-
 

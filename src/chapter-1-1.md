@@ -1,5 +1,3 @@
-Defining Empowerment and Its Importance in the Workplace
-=============================================================================================================
 
 Empowerment is a powerful tool for achieving greater success in the workplace. In this chapter, we will define empowerment and explore its importance in the workplace.
 

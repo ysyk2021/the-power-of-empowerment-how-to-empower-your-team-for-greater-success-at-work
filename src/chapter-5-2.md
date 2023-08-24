@@ -1,5 +1,3 @@
-Promoting experimentation and risk-taking
-===========================================================================================
 
 Innovation and creativity are essential for success in today's rapidly changing workplace. Empowered individuals and teams are more likely to engage in creative problem-solving and generate innovative ideas. In this chapter, we will explore the importance of promoting experimentation and risk-taking to encourage innovation and creativity.
 

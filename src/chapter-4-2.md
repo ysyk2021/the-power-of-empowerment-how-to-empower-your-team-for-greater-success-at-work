@@ -1,5 +1,3 @@
-Providing training and mentorship opportunities
-==============================================================================================================
 
 Empowerment requires individuals to have the skills and competencies necessary to make decisions and take action in their work. In this chapter, we will explore the importance of providing training and mentorship opportunities to develop these skills and competencies.
 

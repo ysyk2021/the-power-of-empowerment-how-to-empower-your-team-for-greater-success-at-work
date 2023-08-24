@@ -1,5 +1,3 @@
-Developing skills and competencies for empowerment
-=================================================================================================================
 
 Empowerment is a powerful tool that can lead to greater success and satisfaction in the workplace. However, individuals must possess certain skills and competencies to effectively take ownership of their work and make decisions that benefit themselves and the organization. In this chapter, we will explore strategies for developing skills and competencies for empowerment.
 

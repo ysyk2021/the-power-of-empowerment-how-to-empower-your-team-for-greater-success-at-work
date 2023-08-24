@@ -1,5 +1,3 @@
-Using Data and Metrics to Track Progress and Success
-=================================================================================================================
 
 Measuring and evaluating empowerment performance is essential for ensuring that your team is achieving greater success at work. In this chapter, we will explore strategies for using data and metrics to track progress and success.
 

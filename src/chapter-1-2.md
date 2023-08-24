@@ -1,5 +1,3 @@
-Historical Perspectives on Empowerment Theory and Practice
-===============================================================================================================
 
 Empowerment has a rich history that spans several decades. In this chapter, we will explore the historical perspectives on empowerment theory and practice.
 

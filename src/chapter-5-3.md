@@ -1,5 +1,3 @@
-Supporting idea generation and implementation
-===============================================================================================
 
 Empowerment is a powerful tool that can lead to greater success and satisfaction in the workplace. Encouraging innovation and creativity is an essential component of empowerment, as it allows individuals to generate new ideas and solutions that benefit themselves and the organization. In this chapter, we will explore strategies for encouraging innovation and creativity by supporting idea generation and implementation.
 
