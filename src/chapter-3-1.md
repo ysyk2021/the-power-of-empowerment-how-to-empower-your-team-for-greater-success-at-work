@@ -1,5 +1,4 @@
-Chapter: Developing Strategies for Creating a Culture of Trust and Autonomy
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

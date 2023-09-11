@@ -1,5 +1,4 @@
-Chapter: Developing Skills and Competencies for Empowerment
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

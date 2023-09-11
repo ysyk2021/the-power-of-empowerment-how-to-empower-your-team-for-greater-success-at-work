@@ -1,5 +1,4 @@
-Chapter: Understanding the Importance of Measuring and Evaluating Empowerment Performance
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

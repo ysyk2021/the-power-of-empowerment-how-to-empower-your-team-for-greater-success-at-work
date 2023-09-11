@@ -1,5 +1,4 @@
-Chapter: Recognizing the Benefits of Empowerment for Individuals and Organizations
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
